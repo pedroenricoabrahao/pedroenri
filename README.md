@@ -10,6 +10,8 @@ meu nome e pedro enrico
 
 - pedroenricoabrahao@gmail.com
 
+- @pedrinn_xsz.019
+
 ![](https://media1.tenor.com/m/E3gNlmd5zUoAAAAd/mater-scrape.gif)
 
 
